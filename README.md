@@ -1,0 +1,2 @@
+# ihatemyself
+kill me
